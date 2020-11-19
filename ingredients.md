@@ -1,0 +1,1 @@
+Red velvet cake is a red ,chocolate layer cake. Traditional recipes do not use food coloring, with the red color due to non-Dutched,rich cocoa.
